@@ -1,1 +1,1 @@
-# Eure-et-Loire-Fromagerie
+# Eure-et-Loire-Fromage
